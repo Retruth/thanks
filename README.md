@@ -1,2 +1,0 @@
-# thanks
-Share abundant gratitude
